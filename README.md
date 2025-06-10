@@ -1,1 +1,1 @@
-Random things DELTARUNE
+Random things
